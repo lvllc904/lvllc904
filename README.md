@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lvllc904
 - 👀 I’m interested in collaborative projects aimed at making our world a safer place to live. 
 - 🌱 I’m currently learning everything i can 😂
-- 💞️ I’m looking to collaborate on building a block chain market place, coin included starched to a decentralized exchange that takes all currencies. 
+- 💞️ Decentralized Autonomous Community is the main focus at the moment. if you're interested in other projects hit me up. 
 - 📫 How to reach me lyonides.ventures@gmail.com
 - 😄 Pronouns: anything but late for dinner 🤷🏽‍♂️
 - ⚡ Fun fact: i'm human ☺️
